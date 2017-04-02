@@ -1,5 +1,2 @@
 ## Welcome 
-emptyness still
-
-## now?
-i donno
+ ¯\\_(ツ)_/¯
